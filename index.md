@@ -14,4 +14,4 @@
 
   
 
-<img src="cartel.jpg" height="300px" width="120px" alt="Photo of creator"/>
+<img src="cartel.jpg" height="300px" width="150px" alt="Photo of creator"/>
