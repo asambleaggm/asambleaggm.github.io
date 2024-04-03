@@ -4,8 +4,8 @@
 [ENLACE DIRECTO A TODOS LOS DOCUMENTOS DE LA CAMPAÑA 18_23](https://docs.google.com/document/d/1Q08LgGZRj7RZ8u_8xzcPUhxvCBtdeepL/edit)
 
 ## [3 DE ABRIL EN EL GGM]
-- Fijarnos en luchas como la de ACERINOX (58 días en huelga), que por supuesto, no sale en los "medios de comunicación"
-[ENLACE NOTICIA EUROPASUR](https://www.europasur.es/los_barrios/Acerinox-comite-huelga-negociacion-convenio_0_1886513579.html)
+- Fijarnos en luchas como la de ACERINOX (58 días en huelga), que por supuesto, no sale en los "medios de comunicación" <br>
+[ENLACE NOTICIA EUROPASUR](https://www.europasur.es/los_barrios/Acerinox-comite-huelga-negociacion-convenio_0_1886513579.html) <br>
 [ENLACE ONDA ALGECIRAS](https://www.youtube.com/watch?v=CWtThocu-m8)
 - Plantear en la asamblea general el sacar un escrito de reconocimiento y apoyo a huelgas y luchas como la de ACERINOX (en la que deberíamos fijarnos)
 - ¿Hay propuestas para el inicio de curso en Septiembre? --> En las actas de la asamblea general aparecen varios comentarios sobre esto
