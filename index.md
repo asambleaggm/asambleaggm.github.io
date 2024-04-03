@@ -5,7 +5,7 @@
 
 ## [3 DE ABRIL EN EL GGM]
 - Fijarnos en luchas como la de ACERINOX (58 días en huelga), que por supuesto, no sale en los "medios de comunicación"
-(https://www.europasur.es/los_barrios/Acerinox-comite-huelga-negociacion-convenio_0_1886513579.html)
+[https://www.europasur.es/los_barrios/Acerinox-comite-huelga-negociacion-convenio_0_1886513579.html]
 (https://www.youtube.com/watch?v=CWtThocu-m8)
 - Plantear en la asamblea general el sacar un escrito de reconocimiento y apoyo a huelgas y luchas como la de ACERINOX (en la que deberíamos fijarnos)
 - ¿Hay propuestas para el inicio de curso en Septiembre? --> En las actas de la asamblea general aparecen varios comentarios sobre esto
