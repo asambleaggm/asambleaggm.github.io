@@ -3,6 +3,13 @@
 
 [ENLACE DIRECTO A TODOS LOS DOCUMENTOS DE LA CAMPAÑA 18_23](https://docs.google.com/document/d/1Q08LgGZRj7RZ8u_8xzcPUhxvCBtdeepL/edit)
 
+## [4 DE ABRIL GENERAL MENOS LECTIVAS]
+TAREA PARA LAS ASAMBLEAS DE CENTRO (EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL)
+  - Huelga ¿si o no?
+  - ¿Uno o dos días?
+  - ¿Posibles fechas? --> 7/8 de Mayo o 28/29 de Mayo
+  ¡¡IMPORTANTE!! La decisión tiene que estar tomada antes del 11 de Abril
+
 ## [3 DE ABRIL ASAMBLEA DAT-SUR]
 
 [ACTA ASAMBLEA DAT-SUR](https://mega.nz/file/kFcjCZrR#zG1JxgKvzaybqxq1ST4BahFvlh2J6lZOjgrI3Nv08rE)
