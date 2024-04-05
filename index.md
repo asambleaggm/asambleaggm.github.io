@@ -8,10 +8,11 @@ La idea que tenemos es que estaría muy bien que lo enviásemos de manera masiva
 A continuación compartimos las instrucciones para llevar a cabo dichas reclamaciones de manera sencilla.
 Reenvíalo a tus contactos que trabajen en educación.
 Con el fin de llevar un recuento de cuantas personas han enviado el texto te solicitamos que entres en el grupo de wastup que hemos creado para ello.
+<br>
 [DOCUMENTO CON LAS INSTRUCCIONES](https://mega.nz/file/xN8TEQrS#xMtkAtGsG8oAGbFPa66K3617xfjDgLr2GpFWz5OW7LY)
 
 ## [4 DE ABRIL GENERAL MENOS LECTIVAS]
-TAREA PARA LAS ASAMBLEAS DE CENTRO (EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL)
+TAREA PARA LAS ASAMBLEAS DE CENTRO <b>(EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL)</b>
   - Huelga ¿si o no?
   - ¿Uno o dos días?
   - ¿Posibles fechas? --> 7/8 de Mayo o 28/29 de Mayo
