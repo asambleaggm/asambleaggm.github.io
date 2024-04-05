@@ -2,6 +2,13 @@
 [ENLACE A LA WEB DE MENOS LECTIVAS](https://sites.google.com/view/menoslectivas/inicio?fbclid=PAAaaqWAbWZwA0s3rgv9F3sp_PvYYOQWqU_nt5EED4Tb0_pllt68GAWjk8tj0)
 
 [ENLACE DIRECTO A TODOS LOS DOCUMENTOS DE LA CAMPAÑA 18_23](https://docs.google.com/document/d/1Q08LgGZRj7RZ8u_8xzcPUhxvCBtdeepL/edit)
+## [ACCIÓN DIGITAL PROPUESTA]
+Ante el evidente incumplimiento de la ley a la hora de hacer los horarios de los profesores en la comunidad de Madrid, un grupo de profesores hemos decidido presentar una queja-reclamación mediante escrito al defensor del pueblo y a los ministerios de educación y de trabajo.
+La idea que tenemos es que estaría muy bien que lo enviásemos de manera masiva muchos profesores.
+A continuación compartimos las instrucciones para llevar a cabo dichas reclamaciones de manera sencilla.
+Reenvíalo a tus contactos que trabajen en educación.
+Con el fin de llevar un recuento de cuantas personas han enviado el texto te solicitamos que entres en el grupo de wastup que hemos creado para ello.
+[DOCUMENTO CON LAS INSTRUCCIONES](https://mega.nz/file/xN8TEQrS#xMtkAtGsG8oAGbFPa66K3617xfjDgLr2GpFWz5OW7LY)
 
 ## [4 DE ABRIL GENERAL MENOS LECTIVAS]
 TAREA PARA LAS ASAMBLEAS DE CENTRO (EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL)
