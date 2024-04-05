@@ -5,7 +5,7 @@
 
 ## [3 DE ABRIL ASAMBLEA DAT-SUR]
 
-[ACTA ASAMBLEA DAT-SUR]
+[ACTA ASAMBLEA DAT-SUR](https://mega.nz/file/kFcjCZrR#zG1JxgKvzaybqxq1ST4BahFvlh2J6lZOjgrI3Nv08rE)
 
 ## [3 DE ABRIL EN EL GGM]
 - Fijarnos en luchas como la de ACERINOX (58 días en huelga), que por supuesto, no sale en los "medios de comunicación" <br>
