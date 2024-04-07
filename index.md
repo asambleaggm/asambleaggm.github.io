@@ -15,16 +15,12 @@ Con el fin de llevar un recuento de cuantas personas han enviado el texto te sol
 <br>
 [DOCUMENTO CON LAS INSTRUCCIONES](https://mega.nz/file/xN8TEQrS#xMtkAtGsG8oAGbFPa66K3617xfjDgLr2GpFWz5OW7LY)
 
-## [4 DE ABRIL GENERAL MENOS LECTIVAS]
-TAREA PARA LAS ASAMBLEAS DE CENTRO <b>(EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL)</b>
+## [TAREA PARA LAS ASAMBLEAS DE CENTRO DESDE LA ASAMBLEA GENERAL] <b>(EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL)</b>
   - Huelga ¿si o no?
   - ¿Uno o dos días?
   - ¿Posibles fechas? --> 7/8 de Mayo o 28/29 de Mayo
   ¡¡IMPORTANTE!! La decisión tiene que estar tomada antes del 11 de Abril
  
-
-
-
 ## [3 DE ABRIL EN EL GGM]
 - Fijarnos en luchas como la de ACERINOX (58 días en huelga), que por supuesto, no sale en los "medios de comunicación" <br>
 [ENLACE NOTICIA EUROPASUR](https://www.europasur.es/los_barrios/Acerinox-comite-huelga-negociacion-convenio_0_1886513579.html) <br>
@@ -37,7 +33,7 @@ TAREA PARA LAS ASAMBLEAS DE CENTRO <b>(EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL
 <a name="general"></a>
 ## [INFORMACIÓN DE LA ASAMBLEA GENERAL]  
 
-[ENLACE A LA WEB DE MENOS LECTIVAS](https://sites.google.com/view/menoslectivas/inicio?fbclid=PAAaaqWAbWZwA0s3rgv9F3sp_PvYYOQWqU_nt5EED4Tb0_pllt68GAWjk8tj0)
+[ENLACE A LA WEB DE MENOS LECTIVAS](https://sites.google.com/view/menoslectivas/inicio?fbclid=PAAaaqWAbWZwA0s3rgv9F3sp_PvYYOQWqU_nt5EED4Tb0_pllt68GAWjk8tj0) <br>
 [ENLACE DIRECTO A TODOS LOS DOCUMENTOS DE LA CAMPAÑA 18_23](https://docs.google.com/document/d/1Q08LgGZRj7RZ8u_8xzcPUhxvCBtdeepL/edit)
 
 <a name="datsur"></a>
