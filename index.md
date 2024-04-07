@@ -1,14 +1,11 @@
 # INFORMACIÓN Y ENLACES PARA PROFES DEL IES GABRIEL GARCÍA MÁRQUEZ (Y PARA CUALQUIERA AL QUE LE LLEGUE ESTE ENLACE :-)
 
 LA WEB ESTARÁ DIVIDIDA EN TRES BLOQUES:
-  - INFORMACIÓN DE LA ASAMBLEA GENERAL (MENOS LECTIVAS, MÁS CALIDAD) [PINCHAR AQUÍ](https://asambleaggm.github.io/general.html)
-  - INFORMACIÓN DE LA ASAMBLEA DAT-SUR [PINCHAR AQUÍ]
+  - INFORMACIÓN DE LA ASAMBLEA GENERAL (MENOS LECTIVAS, MÁS CALIDAD) [PINCHAR AQUÍ](#general)
+  - INFORMACIÓN DE LA ASAMBLEA DAT-SUR [PINCHAR AQUÍ](#datsur)
   - INFORMACIÓN Y TEMAS TRATADOS EN LAS ASAMBLEAS DEL IES GABRIEL GARCÍA MÁRQUEZ (A CONTINUACIÓN)
     
 
-[ENLACE A LA WEB DE MENOS LECTIVAS](https://sites.google.com/view/menoslectivas/inicio?fbclid=PAAaaqWAbWZwA0s3rgv9F3sp_PvYYOQWqU_nt5EED4Tb0_pllt68GAWjk8tj0)
-
-[ENLACE DIRECTO A TODOS LOS DOCUMENTOS DE LA CAMPAÑA 18_23](https://docs.google.com/document/d/1Q08LgGZRj7RZ8u_8xzcPUhxvCBtdeepL/edit)
 ## [ACCIÓN DIGITAL PROPUESTA]
 Ante el evidente incumplimiento de la ley a la hora de hacer los horarios de los profesores en la comunidad de Madrid, un grupo de profesores hemos decidido presentar una queja-reclamación mediante escrito al defensor del pueblo y a los ministerios de educación y de trabajo.
 La idea que tenemos es que estaría muy bien que lo enviásemos de manera masiva muchos profesores.
@@ -24,10 +21,9 @@ TAREA PARA LAS ASAMBLEAS DE CENTRO <b>(EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL
   - ¿Uno o dos días?
   - ¿Posibles fechas? --> 7/8 de Mayo o 28/29 de Mayo
   ¡¡IMPORTANTE!! La decisión tiene que estar tomada antes del 11 de Abril
+ 
 
-## [3 DE ABRIL ASAMBLEA DAT-SUR]
 
-[ACTA ASAMBLEA DAT-SUR](https://mega.nz/file/kFcjCZrR#zG1JxgKvzaybqxq1ST4BahFvlh2J6lZOjgrI3Nv08rE)
 
 ## [3 DE ABRIL EN EL GGM]
 - Fijarnos en luchas como la de ACERINOX (58 días en huelga), que por supuesto, no sale en los "medios de comunicación" <br>
@@ -38,6 +34,15 @@ TAREA PARA LAS ASAMBLEAS DE CENTRO <b>(EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL
 - ¿Como vemos hacer pseudo-piquetes informativos en los centros desmovilizados en los alrededores de centros donde si que hay movilizaciones?
 - Salir al patio en algún recreo y hacer pancartas para que los alumnos sepan de que va la historia.
 
-  
+<a name="general"></a>
+## [INFORMACIÓN DE LA ASAMBLEA GENERAL]  
+
+[ENLACE A LA WEB DE MENOS LECTIVAS](https://sites.google.com/view/menoslectivas/inicio?fbclid=PAAaaqWAbWZwA0s3rgv9F3sp_PvYYOQWqU_nt5EED4Tb0_pllt68GAWjk8tj0)
+[ENLACE DIRECTO A TODOS LOS DOCUMENTOS DE LA CAMPAÑA 18_23](https://docs.google.com/document/d/1Q08LgGZRj7RZ8u_8xzcPUhxvCBtdeepL/edit)
+
+<a name="datsur"></a>
+## [INFORMACIÓN DE LA ASAMBLEA DAT-SUR]  
+[ACTA ASAMBLEA DAT-SUR 3 DE ABRIL](https://mega.nz/file/kFcjCZrR#zG1JxgKvzaybqxq1ST4BahFvlh2J6lZOjgrI3Nv08rE)
+
 
 <img src="cartel.jpg" height="300px" width="170px" alt="Photo of creator"/>
