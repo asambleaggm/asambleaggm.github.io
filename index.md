@@ -7,7 +7,7 @@ LA WEB ESTARÁ DIVIDIDA EN TRES BLOQUES:
   - INFORMACIÓN Y TEMAS TRATADOS EN LAS ASAMBLEAS DEL IES GABRIEL GARCÍA MÁRQUEZ (A CONTINUACIÓN)
     
 ## [10 DE ABRIL EN EL GGM ==> PUNTOS A TRATAR (ENTRE OTROS)] 
-### [ACCIÓN DIGITAL PROPUESTA]
+### [1.- ACCIÓN DIGITAL PROPUESTA]
 Ante el evidente incumplimiento de la ley a la hora de hacer los horarios de los profesores en la comunidad de Madrid, un grupo de profesores hemos decidido presentar una queja-reclamación mediante escrito al defensor del pueblo y a los ministerios de educación y de trabajo.
 La idea que tenemos es que estaría muy bien que lo enviásemos de manera masiva muchos profesores.
 A continuación compartimos las instrucciones para llevar a cabo dichas reclamaciones de manera sencilla.
@@ -16,7 +16,7 @@ Con el fin de llevar un recuento de cuantas personas han enviado el texto te sol
 <br>
 [DOCUMENTO CON LAS INSTRUCCIONES](https://mega.nz/file/xN8TEQrS#xMtkAtGsG8oAGbFPa66K3617xfjDgLr2GpFWz5OW7LY)
 
-### [TAREA PARA LAS ASAMBLEAS DE CENTRO DESDE LA ASAMBLEA GENERAL] <b>(EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL)</b>
+### [2.- TAREA PARA LAS ASAMBLEAS DE CENTRO DESDE LA ASAMBLEA GENERAL] <b>(EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL)</b>
   - Huelga ¿si o no?
   - ¿Uno o dos días?
   - ¿Posibles fechas? --> 7/8 de Mayo o 28/29 de Mayo
