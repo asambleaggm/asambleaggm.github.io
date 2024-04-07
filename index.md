@@ -6,7 +6,7 @@ LA WEB ESTARÁ DIVIDIDA EN TRES BLOQUES:
   - INFORMACIÓN DE LA ASAMBLEA DAT-SUR [PINCHAR AQUÍ](#datsur)
   - INFORMACIÓN Y TEMAS TRATADOS EN LAS ASAMBLEAS DEL IES GABRIEL GARCÍA MÁRQUEZ (A CONTINUACIÓN)
     
-## [10 DE ABRIL EN EL GGM --> PUNTOS A COMENTAR] 
+## [10 DE ABRIL EN EL GGM ==> PUNTOS A TRATAR (ENTRE OTROS)] 
 ### [ACCIÓN DIGITAL PROPUESTA]
 Ante el evidente incumplimiento de la ley a la hora de hacer los horarios de los profesores en la comunidad de Madrid, un grupo de profesores hemos decidido presentar una queja-reclamación mediante escrito al defensor del pueblo y a los ministerios de educación y de trabajo.
 La idea que tenemos es que estaría muy bien que lo enviásemos de manera masiva muchos profesores.
