@@ -3,7 +3,7 @@
 
 LA WEB ESTARÁ DIVIDIDA EN TRES BLOQUES:
   - INFORMACIÓN DE LA ASAMBLEA GENERAL (MENOS LECTIVAS, MÁS CALIDAD) <a href="./general.md">[PINCHAR AQUÍ]</a>
-  - INFORMACIÓN DE LA ASAMBLEA DAT-SUR <a href="./datsur.html">[PINCHAR AQUÍ]</a>
+  - INFORMACIÓN DE LA ASAMBLEA DAT-SUR <a href="./datsur.md">[PINCHAR AQUÍ]</a>
   - INFORMACIÓN Y TEMAS TRATADOS EN LAS ASAMBLEAS DEL IES GABRIEL GARCÍA MÁRQUEZ (A CONTINUACIÓN)
     
 ## [12 DE ABRIL EN EL GGM ==> PUNTOS A TRATAR (ENTRE OTROS)] 
@@ -33,11 +33,5 @@ Con el fin de llevar un recuento de cuantas personas han enviado el texto te sol
 - ¿Hay propuestas para el inicio de curso en Septiembre? --> En las actas de la asamblea general aparecen varios comentarios sobre esto
 - ¿Como vemos hacer pseudo-piquetes informativos en los centros desmovilizados en los alrededores de centros donde si que hay movilizaciones?
 - Salir al patio en algún recreo y hacer pancartas para que los alumnos sepan de que va la historia.
-
-
-<a name="datsur"></a>
-## [INFORMACIÓN DE LA ASAMBLEA DAT-SUR]  
-[ACTA ASAMBLEA DAT-SUR 3 DE ABRIL](https://mega.nz/file/kFcjCZrR#zG1JxgKvzaybqxq1ST4BahFvlh2J6lZOjgrI3Nv08rE)<br><br>
-[VOLVER AL INICIO](#inicio)<br>
 
 <img src="cartel.jpg" height="300px" width="170px" alt="Photo of creator"/>
