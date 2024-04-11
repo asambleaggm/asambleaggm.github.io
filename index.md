@@ -6,7 +6,7 @@ LA WEB ESTARÁ DIVIDIDA EN TRES BLOQUES:
   - INFORMACIÓN DE LA ASAMBLEA DAT-SUR [PINCHAR AQUÍ](#datsur)
   - INFORMACIÓN Y TEMAS TRATADOS EN LAS ASAMBLEAS DEL IES GABRIEL GARCÍA MÁRQUEZ (A CONTINUACIÓN)
     
-## [10 DE ABRIL EN EL GGM ==> PUNTOS A TRATAR (ENTRE OTROS)] 
+## [12 DE ABRIL EN EL GGM ==> PUNTOS A TRATAR (ENTRE OTROS)] 
 ### [1.- ACCIÓN DIGITAL PROPUESTA]
 Ante el evidente incumplimiento de la ley a la hora de hacer los horarios de los profesores en la comunidad de Madrid, un grupo de profesores hemos decidido presentar una queja-reclamación mediante escrito al defensor del pueblo y a los ministerios de educación y de trabajo.
 La idea que tenemos es que estaría muy bien que lo enviásemos de manera masiva muchos profesores.
@@ -16,11 +16,14 @@ Con el fin de llevar un recuento de cuantas personas han enviado el texto te sol
 <br>
 [DOCUMENTO CON LAS INSTRUCCIONES](https://mega.nz/file/xN8TEQrS#xMtkAtGsG8oAGbFPa66K3617xfjDgLr2GpFWz5OW7LY)
 
-### [2.- TAREA PARA LAS ASAMBLEAS DE CENTRO DESDE LA ASAMBLEA GENERAL] <b>(EN NUESTRO CASO EL MIÉRCOLES 10 DE ABRIL)</b>
+### [2.- TAREA PARA LAS ASAMBLEAS DE CENTRO DESDE LA ASAMBLEA GENERAL] <b>(EN NUESTRO CASO EL VIERNES 12 DE ABRIL)</b>
   - Huelga ¿si o no?
   - ¿Uno o dos días?
   - ¿Posibles fechas? --> 7/8 de Mayo o 28/29 de Mayo
   ¡¡IMPORTANTE!! La decisión tiene que estar tomada antes del 11 de Abril
+
+### [3.- LOS SINDICATOS DE LA MESA PLANTEAN HUELGA LOS DÍAS 8 Y 21 DE MAYO ==> ¿QUE PENSAMOS? ]
+
  
 ## [3 DE ABRIL EN EL GGM]
 - Fijarnos en luchas como la de ACERINOX (58 días en huelga), que por supuesto, no sale en los "medios de comunicación" <br>
