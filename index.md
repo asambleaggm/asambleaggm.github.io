@@ -2,8 +2,8 @@
 # INFORMACIÓN Y ENLACES PARA PROFES DEL IES GABRIEL GARCÍA MÁRQUEZ (Y PARA CUALQUIERA AL QUE LE LLEGUE ESTE ENLACE :-)
 
 LA WEB ESTARÁ DIVIDIDA EN TRES BLOQUES:
-  - INFORMACIÓN DE LA ASAMBLEA GENERAL (MENOS LECTIVAS, MÁS CALIDAD) <a href="./general.md">[PINCHAR AQUÍ]</a>
-  - INFORMACIÓN DE LA ASAMBLEA DAT-SUR <a href="./datsur.md">[PINCHAR AQUÍ]</a>
+  - INFORMACIÓN DE LA ASAMBLEA GENERAL (MENOS LECTIVAS, MÁS CALIDAD) [PINCHAR AQUÍ](#general)
+  - INFORMACIÓN DE LA ASAMBLEA DAT-SUR [PINCHAR AQUÍ](#datsur)
   - INFORMACIÓN Y TEMAS TRATADOS EN LAS ASAMBLEAS DEL IES GABRIEL GARCÍA MÁRQUEZ (A CONTINUACIÓN)
     
 ## [12 DE ABRIL EN EL GGM ==> PUNTOS A TRATAR (ENTRE OTROS)] 
@@ -33,5 +33,15 @@ Con el fin de llevar un recuento de cuantas personas han enviado el texto te sol
 - ¿Hay propuestas para el inicio de curso en Septiembre? --> En las actas de la asamblea general aparecen varios comentarios sobre esto
 - ¿Como vemos hacer pseudo-piquetes informativos en los centros desmovilizados en los alrededores de centros donde si que hay movilizaciones?
 - Salir al patio en algún recreo y hacer pancartas para que los alumnos sepan de que va la historia.
+
+<a name="general"></a>
+## [INFORMACIÓN DE LA ASAMBLEA GENERAL]  
+[ENLACE A LA WEB DE MENOS LECTIVAS](https://sites.google.com/view/menoslectivas/inicio?fbclid=PAAaaqWAbWZwA0s3rgv9F3sp_PvYYOQWqU_nt5EED4Tb0_pllt68GAWjk8tj0) <br>
+[ENLACE DIRECTO A TODOS LOS DOCUMENTOS DE LA CAMPAÑA 18_23](https://docs.google.com/document/d/1Q08LgGZRj7RZ8u_8xzcPUhxvCBtdeepL/edit)<br><br>
+[VOLVER AL INICIO](#inicio) <br><br>
+<a name="datsur"></a>
+## [INFORMACIÓN DE LA ASAMBLEA DAT-SUR]  
+[ACTA ASAMBLEA DAT-SUR 3 DE ABRIL](https://mega.nz/file/kFcjCZrR#zG1JxgKvzaybqxq1ST4BahFvlh2J6lZOjgrI3Nv08rE)<br><br>
+[VOLVER AL INICIO](#inicio)<br>
 
 <img src="cartel.jpg" height="300px" width="170px" alt="Photo of creator"/>
