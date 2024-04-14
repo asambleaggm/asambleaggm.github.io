@@ -7,6 +7,12 @@ LA WEB ESTARÁ DIVIDIDA EN TRES BLOQUES:
   - INFORMACIÓN Y TEMAS TRATADOS EN LAS ASAMBLEAS DEL IES GABRIEL GARCÍA MÁRQUEZ (A CONTINUACIÓN)
     
 ## [12 DE ABRIL EN EL GGM ==> PUNTOS A TRATAR (ENTRE OTROS)] 
+### [0.- LO QUE SE HA COMENTADO]
+  - Hay gente que asistió a la asamblea de CCOO (DAT-SUR). Su intención era negociar, pero como no han conseguido nada, deciden convocar huelga. Hablan de las buenas intenciones del Consejero, pero que no le permiten bajada de horas desde arriba.
+  - 
+  - Sobre el ir uno o dos días a la huelga, en torno a unas 12-14 personas levantan la mano para los dos días y en torno a 4 levantan la mano para un día.
+
+
 ### [1.- ACCIÓN DIGITAL PROPUESTA]
 Ante el evidente incumplimiento de la ley a la hora de hacer los horarios de los profesores en la comunidad de Madrid, un grupo de profesores hemos decidido presentar una queja-reclamación mediante escrito al defensor del pueblo y a los ministerios de educación y de trabajo.
 La idea que tenemos es que estaría muy bien que lo enviásemos de manera masiva muchos profesores.
