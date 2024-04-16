@@ -63,4 +63,4 @@ Con el fin de llevar un recuento de cuantas personas han enviado el texto te sol
 
 <img src="cartel.jpg" height="300px" width="170px" alt="Photo of creator"/>
 <a href="asambleaggm.github.io/datsur.html">Research</a>
-<a href="https://asambleaggm.github.io/datsur.html">Research</a>
+<a href="datsur.md">Research</a>
