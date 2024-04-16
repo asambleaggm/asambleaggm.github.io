@@ -5,6 +5,15 @@ LA WEB ESTARÁ DIVIDIDA EN TRES BLOQUES:
   - INFORMACIÓN DE LA ASAMBLEA GENERAL (MENOS LECTIVAS, MÁS CALIDAD) [PINCHAR AQUÍ](#general)
   - INFORMACIÓN DE LA ASAMBLEA DAT-SUR [PINCHAR AQUÍ](#datsur)
   - INFORMACIÓN Y TEMAS TRATADOS EN LAS ASAMBLEAS DEL IES GABRIEL GARCÍA MÁRQUEZ (A CONTINUACIÓN)
+
+## [ASAMBLEA GENERAL MENOS LECTIVAS 16 DE ABRIL]
+Un resumen de una persona de la DATSUR sobre lo que se ha hablado:
+"Hola compis. Os hago un breve resumen de las conclusiones de ayer.
+Finalmente, se aprobó convocar huelga los días 8 y 21 de mayo. Lo haremos por nuestro lado para evitar que los sindicatos de la mesa se echen atrás y para tener nuestro propio comité de huelga. Aunque se vio bien que se hiciera la convocatoria por parte de estos sindicatos, se consideró que debíamos mantener una independencia organizativa, emplear nuestros métodos de autoorganización y de levantar la huelga desde los centros, no convocando desde arriba. 
+Se dijo de asistir a las acciones que se convocaran (manis, piquetes, etc.), pero siempre con nuestro perfil, fomentando la coordinación y la organización, y no haciendo "seguidismo" de forma pasiva.
+También se animó a hacer acciones propias. Pero eso se dijo que, al margen de que luego tomemos la decisión de hacer una gran manifestación tal o cual día de manera coordinada, debía ser discutido en las asambleas de centro y de DAT. Por esto, creo que deberíamos reunirnos cuanto antes y pensar acciones generales que podamos elevar y propias que podamos hacer para fortalecer nuestro movimiento y levantar una huelga combativa y potente. 
+La próxima asamblea será el martes que viene (23 de Abril). No tenemos mucho tiempo de reunirnos, pero si salen de aquí propuestas pueden comentarse. Y luego nosotros veremos qué hacemos en la zona sur. 
+Para mí lo que hablamos la otra vez, de hacer esos actos en las distintas localidades lo veo bien (creo, Amanda, Javi y Natalia, que dijimos que íbamos a pensarlo y tal. Si queréis escribirme por privado y discutimos el tema y hacemos una propuesta en firme)."
     
 ## [12 DE ABRIL EN EL GGM ==> PUNTOS A TRATAR (ENTRE OTROS)] 
 ### [0.- LO QUE SE HA COMENTADO]
