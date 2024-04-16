@@ -9,7 +9,9 @@ LA WEB ESTARÁ DIVIDIDA EN TRES BLOQUES:
 ## [12 DE ABRIL EN EL GGM ==> PUNTOS A TRATAR (ENTRE OTROS)] 
 ### [0.- LO QUE SE HA COMENTADO]
   - Hay gente que asistió a la asamblea de CCOO (DAT-SUR). Su intención era negociar, pero como no han conseguido nada, deciden convocar huelga. Hablan de las buenas intenciones del Consejero, pero que no le permiten bajada de horas desde arriba.
-  - 
+  - Se habla en este caso de la huelga de IVECO, que debe ser otro referente en la lucha de las condiciones laborales
+    [ENLACE NOTICIA](https://www.elsaltodiario.com/huelga/huelga-iveco-cuando-toda-plantilla-se-planta-una-subida-salarial-del-1percent)
+  - En general, opinión mayoritaria de que hay que sumarse a lo que han convocado los sindicatos de la mesa, pero hay que seguir dándole vida a la marca "Menos Lectivas" y al movimiento de base en los     centros.   
   - Sobre el ir uno o dos días a la huelga, en torno a unas 12-14 personas levantan la mano para los dos días y en torno a 4 levantan la mano para un día.
 
 
