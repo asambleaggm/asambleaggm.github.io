@@ -18,7 +18,7 @@ Se dijo de asistir a las acciones que se convocaran (manis, piquetes, etc.), per
 También se animó a hacer acciones propias. Pero eso se dijo que, al margen de que luego tomemos la decisión de hacer una gran manifestación tal o cual día de manera coordinada, debía ser discutido en las asambleas de centro y de DAT. Por esto, creo que deberíamos reunirnos cuanto antes y pensar acciones generales que podamos elevar y propias que podamos hacer para fortalecer nuestro movimiento y levantar una huelga combativa y potente. 
 La próxima asamblea será el martes que viene (23 de Abril). No tenemos mucho tiempo de reunirnos, pero si salen de aquí propuestas pueden comentarse. Y luego nosotros veremos qué hacemos en la zona sur. 
 Para mí lo que hablamos la otra vez, de hacer esos actos en las distintas localidades lo veo bien (creo, Amanda, Javi y Natalia, que dijimos que íbamos a pensarlo y tal. Si queréis escribirme por privado y discutimos el tema y hacemos una propuesta en firme)."
-ENLACE AL ACTA DE LA ASAMBLEA DEL 16 DE ABRIL(https://mega.nz/file/MQ8VwL7S#LTEN-hvN51tzD2iecFIAYpEF2YvGnDVZkqbiM9QNEH4)
+[ENLACE AL ACTA DE LA ASAMBLEA DEL 16 DE ABRIL](https://mega.nz/file/MQ8VwL7S#LTEN-hvN51tzD2iecFIAYpEF2YvGnDVZkqbiM9QNEH4)
     
 ## [12 DE ABRIL EN EL GGM ==> PUNTOS A TRATAR (ENTRE OTROS)] 
 ### [0.- LO QUE SE HA COMENTADO]
