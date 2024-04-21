@@ -6,6 +6,10 @@ LA WEB ESTARÁ DIVIDIDA EN TRES BLOQUES:
   - INFORMACIÓN DE LA ASAMBLEA DAT-SUR [PINCHAR AQUÍ](#datsur)
   - INFORMACIÓN Y TEMAS TRATADOS EN LAS ASAMBLEAS DEL IES GABRIEL GARCÍA MÁRQUEZ (A CONTINUACIÓN)
 
+## [ASAMBLEA GGM 17 ABRIL]
+  - Se habla sobre que acciones realizar el día 8 por la mañana. Sería interesante organizar algo a nivel de Leganés si hay fuerza y si no a nivel de DAT-SUR. Se debate la opción de concentración en la DAT-Sur o en el Metro "Casa del Reloj" y alrededores. Se ofrece alguien para solicitar la concentración con tiempo, pero lo dejamos pendiente (luego en el grupo de DAT-SUR se ha hablado de lo mismo y que parece que ya hay confirmada concentración en Leganés).
+  - Nos planteamos que hacer a nivel de centro para que los alumnos (como otros compañeros) vean el movimiento que hay. Quedamos en aportar material (el que cada uno tenga en casa) para hacer alguna pancarta e intentar colgarla en el Centro (comentarlo antes con Dirección) o en algun punto próximo al GGM. Para el siguiente míércoles 24 de Abril vemos lo que hemos reunido y lo que haría falta comprar.
+
 ## [ASAMBLEA GENERAL MENOS LECTIVAS 16 DE ABRIL]
 Un resumen de una persona de la DATSUR sobre lo que se ha hablado:
 "Hola compis. Os hago un breve resumen de las conclusiones de ayer.
