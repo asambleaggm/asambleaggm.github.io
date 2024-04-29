@@ -6,6 +6,23 @@ LA WEB ESTARÁ DIVIDIDA EN TRES BLOQUES:
   - INFORMACIÓN DE LA ASAMBLEA DAT-SUR [PINCHAR AQUÍ](#datsur)
   - INFORMACIÓN Y TEMAS TRATADOS EN LAS ASAMBLEAS DEL IES GABRIEL GARCÍA MÁRQUEZ (A CONTINUACIÓN)
 
+## [ASAMBLEA DAT SUR 22 ABRIL]
+De cara a la huelga del 8 de Mayo: 
+- Hay un consenso claro en potenciar los piquetes informativos al máximo, a nivel local y de 7 a 12 de la mañana.
+- A las 12 se ha convocado por menos lectivas una concentración frente a la Consejería de Educación. 
+- A las 14h en el CSO la Rosa hay una paella popular organizada por CNT
+- A las 17h30 se ha convocado una concentración en Atocha de cara a agruparnos al margen de los sindicatos mayoritarios antes de la Mani de las 18h. Neptuno -Sol)
+Y respecto a la asamblea, lo que más debate ha generado es si centralizar a las 12h la concentración de la conserjería o seguir apostando por lo local, y finalmente hemos decidido lo segundo. 
+Esto se concreta en: 
+- Cada localidad del Sur se organiza a través de wasap/Telegram y decide de manera autónoma si tiene fuerzas para convocar una asamblea/concentración a las 12h de la mañana en su municipio. Esto tiene que estar decidido antes de este domingo 18 para pedir los permisos. 
+- En caso de no haber fuerzas, se suman a alguna de las concentraciones convocadas. 
+- El lunes 29 por la noche, sacamos un cartel unificado con todas las concentraciones convocadas en cada municipio. 
+- Se lanza la idea de convocar asambleas abiertas en estas concentraciones.
+
+Aunque está pendiente de ver qué tal va, había consenso en que esta es una lucha de largo plazo y de acumulación de fuerzas, y en ese sentido se veía también ir pensando en convocar una cacerolada en la Dat Sur de todos los municipios de cara a la huelga del 21. 
+- También se ha lanzado la idea de dedicar el lunes 29 a 4a hora a hablar con el alumnado y explicarles los motivos de la huelga. 
+- También decir que hay material en la web de menos lectivas para descargar y repartir.
+
 ## [ASAMBLEA GGM 17 ABRIL]
   - Se habla sobre que acciones realizar el día 8 por la mañana. Sería interesante organizar algo a nivel de Leganés si hay fuerza y si no a nivel de DAT-SUR. Se debate la opción de concentración en la DAT-Sur o en el Metro "Casa del Reloj" y alrededores. Se ofrece alguien para solicitar la concentración con tiempo, pero lo dejamos pendiente (luego en el grupo de DAT-SUR se ha hablado de lo mismo y que parece que ya hay confirmada concentración en Leganés).
   - Nos planteamos que hacer a nivel de centro para que los alumnos (como otros compañeros) vean el movimiento que hay. Quedamos en aportar material (el que cada uno tenga en casa) para hacer alguna pancarta e intentar colgarla en el Centro (comentarlo antes con Dirección) o en algun punto próximo al GGM. Para el siguiente míércoles 24 de Abril vemos lo que hemos reunido y lo que haría falta comprar.
