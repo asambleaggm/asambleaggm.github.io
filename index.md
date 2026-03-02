@@ -10,4 +10,4 @@
 - Se habla también de si es más efectivo hacer un registro individual o colectivo (y como gestionar esto). Se preguntará en sindicatos, pero se plantea que firmar un documento puede ser más efectivo que tener que presentar un documento digital individual.
 - Se comenta la importancia de que las PROPUESTAS DE MEJORA del centro, no vayan en contra de nuestras condiciones laborales.
 
-PRÓXIMA ASAMBLEA: VIERNES 7 DE MAYO
+PRÓXIMA ASAMBLEA: VIERNES 7 DE MARZO
