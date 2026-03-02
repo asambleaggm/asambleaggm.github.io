@@ -12,7 +12,7 @@
 - S. => se encargaba de mirar si hay normativa clara que nos oblige a ejercer la función de vigilancia al equipo docente. Como no da tiempo nos loc uenta el viernes en la siguiente asmablea. 
 
 ### ACUERDOS:
-- Se dan dos días, hasta el miércoles 4 par ahacer modificaciones o añadir algo al texto borrrador que pasó jorge por Whatsapp (Escribirle a él con el texto a incluir/modificar ya hecho, para que lo añada)
+- Se dan dos días, hasta el miércoles 4 par ahacer modificaciones o añadir algo al texto borrrador que se pasó por Whatsapp (Escribirle a él con el texto a incluir/modificar ya hecho, para que lo añada)
 - Se acuerda que ante cualquier "propuesta de mejora", se pida tiempo para reflexionar e indagar en el impacto en nuestro trabajo, antes de aprobarla, no entrar a la urgencia y no votar/aprobar inmediatamente nada. 
 
 ### TAREAS QUE SALEN DE ESTA ASAMBLEA Y SUS RESPONSABLES Y FECHAS:
