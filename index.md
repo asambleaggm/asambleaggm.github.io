@@ -19,4 +19,4 @@
 - M. => Consulta estrategia a su sindicato. El viernes nos cuenta.
 - J. => Recoge los matices/aportaciones de compis, y envía el texto definitivo el miércoles para que se empiece a mover por departamentos y vayamos involucrando al resto de profes. 
 
-PRÓXIMA ASAMBLEA: VIERNES 7 DE MARZO
+#### PRÓXIMA ASAMBLEA: VIERNES 7 DE MARZO
