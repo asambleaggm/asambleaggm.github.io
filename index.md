@@ -13,6 +13,7 @@
   - Buscar un consenso para las guardias de pasillo
   - Se plantea más presencia en los pasillos por parte de los AG (lo que posiblemente evitaría las Guardias de Pasillo)
   - También se plantea mejorar nuestra propia eficiencia en G y AG y ser autocríticos con esto.
+  - Enlace al PAD para analizar las guardias de pasillo (https://pad.riseup.net/p/Q7EEoY4aRbK4gp0VJgge)
  
 #### PRÓXIMA ASAMBLEA: MIÉRCOLES 11 DE MARZO (AULA DE MÚSICA)
 
