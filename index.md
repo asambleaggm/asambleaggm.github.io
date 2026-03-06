@@ -1,6 +1,21 @@
 <a name="inicio"></a>
 # ACTAS DE LAS ASAMBLEAS DEL GGM (RETOMADAS EN FEBRERO DE 2026)
 
+## [ASAMBLEA 4 DE MARZO (AULA DE MÚSICA)]
+
+- Se repasa el escrito a la DAT.
+- Modificaciones:
+Exponemos: añadimos en este apartado que “se ha dado un aumento preocupante de problemas de salud mental, Incluir nº protocolos intento autolítico e ideación suicida, en concreto ene l GGM hay más de 40”. 
+“(…) Sin rebasar los límites de nuestras funciones en cuanto a las medidas que se toman en los protocolos”
+Decidimos que, para la instancia a la DAT, hacemos recogida de firmas en papel. J. saca el texto final con el recuadro para firmas y se reparten para que todas las participantes en la asamblea traten de llegar a la mayor parte del profesorado, informarles y recoger sus firmas, si están de acuerdo.
+
+### TEMAS ASAMBLEA DE VIERNES: 
+- Sergio nos indicará que dice la normativa en cuanto a las funciones de vigilancia dentro de la función docente. 
+- Hablaremos de los pasos a dar en cuanto a los cambios que implican a la dinámica de nuestro centro (propuestas de mejora, Plan de convivencia, guardias, etc. )
+- Se comenta que hay medidas que son prácticamente imposibles de ejecutar debido a la dinámica natural de las aulas (si me doy la vuelta para escribir en la pizarra no puedo controlar si graban o se agreden) y necesidades o situaciones sobrevenidas en los pasillos (atender una pregunta de un alumno, ir al wc…)
+
+#### PRÓXIMA ASAMBLEA: VIERNES 6 DE MARZO (AULA DE MÚSICA)
+
 ## [ASAMBLEA 2 DE MARZO (AULA DE MÚSICA)]
 - En torno a 28 participantes
 - J. => Lee el documento que se difundió por el grupo de WhatsApp el documento que se pretende enviar por registro a la DAT.
@@ -19,4 +34,4 @@
 - M. => Consulta estrategia a su sindicato. El viernes nos cuenta.
 - J. => Recoge los matices/aportaciones de compis, y envía el texto definitivo el miércoles para que se empiece a mover por departamentos y vayamos involucrando al resto de profes. 
 
-#### PRÓXIMA ASAMBLEA: VIERNES 7 DE MARZO
+#### PRÓXIMA ASAMBLEA: MIÉRCOLES 4 DE MARZO
