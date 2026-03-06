@@ -1,6 +1,22 @@
 <a name="inicio"></a>
 # ACTAS DE LAS ASAMBLEAS DEL GGM (RETOMADAS EN FEBRERO DE 2026)
 
+## [ASAMBLEA 6 DE MARZO (AULA DE MÚSICA)]
+- Unos 22 asistentes
+- Sobre el texto para enviar el REGISTRO:
+  - Se debate sobre el texto (que ya se está firmando) ycomo informar al ED.
+  - C. comenta que en su reunión de Depto, L. ha sido informada igual que el resto de compañeros del departamento.
+  - Propuesta de recopilar firmas y hacer recuento el miércoles 11 en la siguiente asamblea con el objetivo de entregar en registro el viernes 13.
+  - Planteamos circular el documento también por los canales que consideremos oportunos.
+- Sobre el tema de guardias de pasillo:
+  - Se plantea pedir cosas concretas a Jefatura.
+  - Buscar un consenso para las guardias de pasillo
+  - Se plantea más presencia en los pasillos por parte de los AG (lo que posiblemente evitaría las Guardias de Pasillo)
+  - También se plantea mejorar nuestra propia eficiencia en G y AG y ser autocríticos con esto.
+ 
+#### PRÓXIMA ASAMBLEA: MIÉRCOLES 11 DE MARZO (AULA DE MÚSICA)
+
+
 ## [ASAMBLEA 4 DE MARZO (AULA DE MÚSICA)]
 
 - Se repasa el escrito a la DAT.
