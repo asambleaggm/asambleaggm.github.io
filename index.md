@@ -1,6 +1,23 @@
 <a name="inicio"></a>
 # ACTAS DE LAS ASAMBLEAS DEL GGM (RETOMADAS EN FEBRERO DE 2026)
 
+## [ASAMBLEA 11 DE MARZO (AULA DE MÚSICA)]
+
+El sentir general de los profesores/as incluye:
+1. No tenemos la responsabilidad absoluta sobre los comportamientos del alumnado
+2. No puede ser que tengamos menos credibilidad que los alumnos ante el equipo directivo. Somos autoridad en el desarrollo de nuestras funciones.
+3. Sentimiento de indefensión frente a las consecuencias de comportamientos disruptivos.
+4. Desconfianza entre equipo directivo y docentes
+5. Cansancio físico y mental que puede acarrear toma de decisiones equivocadas
+6. Necesidad de mejorar el diálogo entre equipo directivo y profes
+7. Respecto a guardias de pasillo: no son efectivas; afecta negativamente a la salud de profesores /as ya que hay riesgos laborales añadidos como permanecer de pie, iluminación deficiente, estrés por la intensidad de la vigilancia sobre 4 grupos, etc.
+8. La alternativa pasaría por asumir la vigilancia de los pasillos por parte de los profesores de guardia y apoyo de guardia.
+¿Cómo hacer llegar este sentir al equipo directivo?
+Se discute sobre la posibilidad de convocar claustro extraordinario o punto en el orden del día del ordinario.
+El equipo de convivencia propone lanzar una encuesta de opinión entre los profesores/as sobre el funcionamiento de la convivencia en el centro.
+Así se podrían recoger datos y presentar un informe en el claustro ordinario en el punto de información sobre convivencia.
+
+
 ## [ASAMBLEA 6 DE MARZO (AULA DE MÚSICA)]
 - Unos 22 asistentes
 - Sobre el texto para enviar el REGISTRO:
